@@ -1,4 +1,4 @@
-![preview](https://github.com/POTN-dashboard/document/raw/master/images/banner.jpg)
+![preview](https://i.loli.net/2020/07/02/aE9AdipH3YytzfC.jpg)
 
 ### 前言
 
